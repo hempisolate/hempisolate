@@ -10,4 +10,4 @@ entj
 
 pierced 11x (ask)
 
-med. marijuana user
+med. mj user
