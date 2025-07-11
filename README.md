@@ -1,7 +1,7 @@
 **beaker**
 
 him 20 entj\
-trans bi blk + pr
+blk + pr
 
 
 **abt**
