@@ -4,7 +4,7 @@ him 20
 
 entj blk+pr
 
-![](https://files.catbox.moe/102ken.png) ![](https://files.catbox.moe/t2b4i5.png)![](https://files.catbox.moe/2o4f9m.png)
+![](https://files.catbox.moe/102ken.png)![](https://files.catbox.moe/t2b4i5.png)![](https://files.catbox.moe/2o4f9m.png)
 
 **abt**
 
