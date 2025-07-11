@@ -4,7 +4,7 @@ him 20
 
 entj
 
-![](https://files.catbox.moe/102ken.png) ![](https://cdn.discordapp.com/emojis/1114019646849429506.webp?size=40&quality=lossless)![](https://files.catbox.moe/2o4f9m.png)
+![](https://files.catbox.moe/102ken.png) ![](https://files.catbox.moe/t2b4i5.png)![](https://files.catbox.moe/2o4f9m.png)
 
 **abt**
 
