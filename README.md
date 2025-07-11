@@ -1,8 +1,9 @@
-**beaker**\
-him 20 entj\
-blk + pr
+# **hey, i'm <ins>beaker.</ins>**
+20 he/him entj\
+blk + pr [[ext.]](https://beetlectomy.straw.page/)
 
 
-**abt**\
-pierced 11x (ask)\
-medical marijuana user
+**<ins>about me</ins>**\
+pierced eleven times\
+medical marijuana user\
+studying social worker
