@@ -1,15 +1,18 @@
-**<ins>about me</ins>**\
-20 he/him entj\
-blk + pr [[ext.]](https://beetlectomy.straw.page/)
+<p align="center">
 
+  ## hey, i'm **<ins>beaker.</ins>**
 
-**<ins>extra information</ins>**\
+20 he/him\
+afro-latino
+
+**<ins>extra info</ins>**\
 pierced eleven times\
 medical marijuana user\
 studying social worker
 
 
-**<ins>limit interaction</ins>**\
+**<ins>limit int</ins>**\
 knew me pre-transition\
 engages in online discourse\
-<sup> ⤿ queer exclusionism + anti/proship, etc. </sup>
+<sup> → queer exclusionism + anti/proship, etc. </sup>
+</p>
