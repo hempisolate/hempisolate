@@ -1,6 +1,4 @@
-<p align="center">
-
-  ## hey, i'm **<ins>beaker.</ins>**
+## hey, i'm **<ins>beaker.</ins>**
 
 20 he/him\
 afro-latino
@@ -15,5 +13,3 @@ studying social worker
 knew me pre-transition\
 engages in online discourse\
 <sup> → queer exclusionism + anti/proship, etc. </sup>
-</p>
-
