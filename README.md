@@ -16,8 +16,11 @@ pierced eleven times\
 medical marijuana user\
 studying social worker
 
-
 **<ins>limit interaction</ins>**\
 knew me pre-transition\
 engages in online discourse\
 <sup> → queer exclusionism + anti/proship, etc. </sup>
+
+**<ins>pt-specific info</ins>**\
+deep-sea defense fleet founder\
+regiscout community c. 2021
