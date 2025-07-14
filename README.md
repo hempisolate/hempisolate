@@ -27,7 +27,7 @@ whisper to interact; often away\
 <div align="center">
   
 a hypochondriac; i think of you, blood\
-pressure spikes! i'll have a heart attack,\
+pressure spikes. i'll have a heart attack,\
 the things i do to see you smile...
 
 </div>
