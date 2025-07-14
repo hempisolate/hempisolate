@@ -6,8 +6,8 @@
 
 ## hey, i'm **<ins>beaker.</ins>**
 
-20 he/him\
-afro-latino
+twenty he/him\
+afro-latino enfj-t
 
 </div>
 
