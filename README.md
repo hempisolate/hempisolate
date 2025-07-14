@@ -1,15 +1,9 @@
 <div align="center">
   <img src="https://files.catbox.moe/s04a42.png"" width="600">
-
-  # </ins>
-  </div>
   
-<div align="center">
-  <img src="https://files.catbox.moe/8jjcqu.png"" width="150">
-  
-### hey, i'm <ins>beaker.</ins>
-twenty he/him\
-afro-latino enfj
+## hello there, i'm <ins>beaker!</ins>
+**twenty he/him\
+afro-latino enfj**
 </div>
 
 **<ins>extra information</ins>**\
@@ -31,8 +25,8 @@ whisper to interact; often away\
 
 <div align="center">
   
-<sup>*a hypochondriac; i think of you, blood\
+<sup>**a hypochondriac; i think of you, blood\
 pressure spikes. i'll have a heart attack,\
-the things i do to see you smile...*</sup>
+the things i do to see you smile...**</sup>
 
 </div>
