@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://files.catbox.moe/a0nwes.png"" width="600">
+  <img src="https://files.catbox.moe/s04a42.png"" width="600">
 
   # hey, i'm **<ins>beaker.</ins>**
 **twenty he/him**\
