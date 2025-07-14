@@ -7,7 +7,6 @@
 ## hey, i'm **<ins>beaker.</ins>**
 
 20 he/him\
-t4t bi\
 afro-latino
 
 </div>
