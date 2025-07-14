@@ -22,5 +22,5 @@ engages in online discourse\
 **<ins>pt-specific info</ins>**\
 deep-sea defense fleet founder\
 regiscout community c. 2021\
-whisper to interact; often afk\
+whisper to interact; often away\
 <sup>↘ [i'd rather be offline; i'd rather be offline!](https://youtu.be/PbBbtNtVXG4&t=44)</sup>
