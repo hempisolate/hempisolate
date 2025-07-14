@@ -1,9 +1,15 @@
 <div align="center">
   <img src="https://files.catbox.moe/s04a42.png"" width="600">
 
-  # hey, i'm **<ins>beaker.</ins>**
-**twenty he/him**\
-**afro-latino enfj**
+  # </ins>
+  </div>
+  
+<div align="center">
+  <img src="https://files.catbox.moe/8jjcqu.png"" width="150">
+  
+### hey, i'm <ins>beaker.</ins>
+twenty he/him\
+afro-latino enfj
 </div>
 
 **<ins>extra information</ins>**\
