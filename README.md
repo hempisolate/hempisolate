@@ -14,7 +14,7 @@ afro-latino
 **<ins>extra information</ins>**\
 pierced eleven times\
 married; local wife guy\
-medical marijuana user\
+stoner/medical marijuana user\
 studying social worker
 
 **<ins>limit interaction</ins>**\
