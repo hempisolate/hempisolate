@@ -1,9 +1,7 @@
-<p align="center">
-  <img src="https://files.catbox.moe/8jjcqu.png"" width="150">
-</p>
-
 <div align="center">
-## hey, i'm **<ins>beaker.</ins>**
+  <img src="https://files.catbox.moe/8jjcqu.png"" width="150">
+
+  ## hey, i'm **<ins>beaker.</ins>**
 
 twenty he/him\
 afro-latino enfj
