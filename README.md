@@ -3,7 +3,8 @@
   
 ## hello there, i'm <ins>beaker!</ins>
 **twenty he/him\
-afro-latino enfj**
+afro-latino enfj**\
+[my atabook](https://beakerbong.atabook.org)
 </div>
 
 **<ins>extra information</ins>**\
