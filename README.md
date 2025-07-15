@@ -4,7 +4,7 @@
 ## hello there, i'm <ins>beaker!</ins>
 **twenty he/him\
 afro-latino enfj**\
-[ata](https://beakerbong.atabook.org)
+<sup>[sign my atabook!](https://beakerbong.atabook.org)</sup>
 </div>
 
 **<ins>extra information</ins>**\
