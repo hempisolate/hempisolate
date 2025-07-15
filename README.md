@@ -1,7 +1,7 @@
 <div align="center">
   <img src="https://files.catbox.moe/s04a42.png"" width="600">
   
-## 'sup, i'm <ins>beaker!</ins>
+## 'sup? i'm <ins>beaker.</ins>
 **twenty he/him\
 afro-latino enfj**\
 <sup>[sign my atabook!](https://beakerbong.atabook.org)</sup>
