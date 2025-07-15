@@ -11,7 +11,7 @@ afro-latino enfj**\
 pierced eleven times\
 married; local wife guy\
 stoner/medical marijuana user\
-studying social worker + queer historian
+studying social worker + queer scholar
 
 **<ins>limit interaction</ins>**\
 knew me pre-transition\
