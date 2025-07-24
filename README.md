@@ -15,6 +15,7 @@ studying social worker + queer scholar
 
 **<ins>limit interaction</ins>**\
 knew me pre-transition\
+minor (-18), unless regiment related\
 engages in online discourse\
 <sup>↘ queer exclusionism + anti/proship, etc. </sup>
 
