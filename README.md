@@ -8,22 +8,22 @@ afro-latino enfj**\
 </div>
 
 **<ins>extra information</ins>**\
-pierced eleven times\
-married; local wife guy\
-stoner/medical marijuana user\
-studying social worker + queer scholar
+**•**  pierced eleven times\
+**•**  married; local wife guy\
+**•**  stoner/medical marijuana user\
+**•**  studying social worker + queer scholar
 
 **<ins>limit interaction</ins>**\
-knew me pre-transition\
-minor (-18), excl. casual/regiment talk\
-engages in online discourse\
-<sup>↘ queer exclusionism + anti/proship, etc. </sup>
+**•**  knew me pre-transition\
+**•**  minor (-18), excl. casual/regiment talk\
+**•**  engages in online discourse\
+<sup>   ↘   queer exclusionism + anti/proship, etc. </sup>
 
 **<ins>pt-specific info</ins>**\
-deep-sea defense fleet founder\
-regiscout community c. 2021\
-whisper to interact; often away\
-<sup>↘ [i'd rather be offline; i'd rather be offline!](https://youtu.be/PbBbtNtVXG4&t=42)</sup>
+**•**  deep-sea defense fleet founder\
+**•**  regiscout community c. 2021\
+**•**  whisper to interact; often away\
+<sup>   ↘   [i'd rather be offline; i'd rather be offline!](https://youtu.be/PbBbtNtVXG4&t=42)</sup>
 
 <div align="center">
   
