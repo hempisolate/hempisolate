@@ -9,7 +9,7 @@ afro-latino enfj**\
 
 **<ins>extra information</ins>**\
 **•**  pierced eleven times\
-**•**  married; local wife guy\
+**•**  married irl; local wife guy\
 **•**  stoner/medical marijuana user\
 **•**  studying social worker + queer scholar
 
