@@ -14,8 +14,8 @@ afro-latino enfj**\
 **•**  studying social worker + queer scholar
 
 **<ins>limit interaction</ins>**\
+**•**  -18, excl. casual/regiment talk\
 **•**  knew me pre-transition\
-**•**  minor (-18), excl. casual/regiment talk\
 **•**  engages in online discourse\
 <sup>   ↘   queer exclusionism + anti/proship, etc. </sup>
 
