@@ -5,7 +5,7 @@
 **<ins>beaker</ins> or <ins>hemp</ins>\
 twenty he/him\
 afro-latino enfj**\
-<sup>[sign my atabook!](https://beakerbong.atabook.org)</sup>
+<sup>[sign my atabook!](https://hempderived.atabook.org)</sup>
 </div>
 
 **<ins>extra information</ins>**\
