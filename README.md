@@ -9,21 +9,21 @@ afro-latino enfj**\
 </div>
 
 **<ins>extra information</ins>**\
-**•**  pierced eleven times\
+**•**  piercing enthusiast (11x)\
 **•**  married irl; local wife guy\
 **•**  stoner/medical marijuana user\
 **•**  studying social worker + queer scholar
 
 **<ins>limit interaction</ins>**\
+**•**  -18, excl. casual/regiment talk\
 **•**  knew me pre-transition\
-**•**  under eighteen, excl. casual/regiment talk\
 **•**  engages in online discourse\
 <sup>   ↘   queer exclusionism + anti/proship, etc. </sup>
 
 **<ins>pt-specific info</ins>**\
 **•**  deep-sea defense fleet founder\
 **•**  regiscout community c. 2021\
-**•**  whisper to interact; often away
+**•**  often away/spec, @mention or w2i
 
 <div align="center">
   
