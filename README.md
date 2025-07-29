@@ -2,7 +2,7 @@
   <img src="https://files.catbox.moe/s04a42.png"" width="600">
   
 ## hello, welcome to <ins>my page!</ins>
-**<ins>beaker</ins> or <ins>hemp</ins>\
+**<ins>hemp</ins> or <ins>beaker</ins>\
 twenty he/him\
 afro-latino enfj**\
 <sup>[sign my atabook!](https://hempderived.atabook.org)</sup>
