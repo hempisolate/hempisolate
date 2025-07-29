@@ -9,7 +9,7 @@ afro-latino enfj**\
 </div>
 
 **<ins>extra information</ins>**\
-**•**  piercing enthusiast (11x)\
+**•**  piercing enthusiast [11x]\
 **•**  married irl; local wife guy\
 **•**  stoner/medical marijuana user\
 **•**  studying social worker + queer scholar
@@ -19,11 +19,6 @@ afro-latino enfj**\
 **•**  knew me pre-transition\
 **•**  engages in online discourse\
 <sup>   ↘   queer exclusionism + anti/proship, etc. </sup>
-
-**<ins>pt-specific info</ins>**\
-**•**  deep-sea defense fleet founder\
-**•**  regiscout community c. 2021\
-**•**  often away/spec, @mention or w2i
 
 <div align="center">
   
