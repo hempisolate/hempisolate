@@ -1,8 +1,9 @@
 <div align="center">
   <img src="https://files.catbox.moe/s04a42.png"" width="600">
   
-## hello there, i'm <ins>beaker!</ins>
-**twenty he/him\
+## hello, welcome to <ins>my page!</ins>
+**<ins>beaker</ins> or <ins>hemp</ins>\
+twenty he/him\
 afro-latino enfj**\
 <sup>[sign my atabook!](https://beakerbong.atabook.org)</sup>
 </div>
