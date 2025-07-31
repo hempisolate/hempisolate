@@ -18,12 +18,12 @@ afro-latino enfj**\
 **•**  -18, excl. casual/regiment talk\
 **•**  knew me pre-transition\
 **•**  engages in online discourse\
-<sup>   ↘   queer exclusionism + anti/proship, etc. </sup>
+   ↘   queer exclusionism + anti/proship, etc.
 
 <div align="center">
   
-<sup>**a hypochondriac; i think of you, blood\
+a hypochondriac; i think of you, blood\
 pressure spikes. i'll have a heart attack,\
-the things i do to see you smile...**</sup>
+the things i do to see you smile...
 
 </div>
