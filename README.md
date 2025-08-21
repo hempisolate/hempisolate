@@ -8,7 +8,7 @@ afro-latino⠀⠀enfj**\
 </div>
 
  ### **<ins>extra</ins> <ins>information</ins>**
-> **★**  piercing lover⠀[ 11x ]\
+> **★**  piercing lover⠀[ 11 × ]\
 **★**  married irl\
 **★**  med. marijuana user\
 **★**  studying <ins>social</ins> <ins>worker</ins>⠀+⠀queer scholar
