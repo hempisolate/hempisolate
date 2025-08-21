@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://files.catbox.moe/s04a42.png"" width="600">
+  <img src="https://files.catbox.moe/oor11d.png"" width="600">
   
 ## hello, welcome to <ins>my page!</ins>
 **<ins>brutus</ins> or <ins>beaker</ins>\
