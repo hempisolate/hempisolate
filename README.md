@@ -1,21 +1,27 @@
 <div align="center">
   <img src="https://files.catbox.moe/oor11d.png"" width="600">
   
-## hello, welcome to <ins>my page!</ins>
-**<ins>brutus</ins> or <ins>beaker</ins>\
-twenty he/him\
-afro-latino enfj**\
-<sup>[sign my atabook!](https://hempderived.atabook.org)</sup>
+## *〝⠀et tu, <ins>bruté</ins>?⠀〞*
+**twenty⠀⠀⠀<ins>he</ins>/<ins>him</ins>\
+afro-latino⠀⠀enfj**\
+[sign](https://hempderived.atabook.org)⠀[my](https://hempderived.atabook.org)⠀[atabook!](https://hempderived.atabook.org)
 </div>
 
-**<ins>extra information</ins>**\
-**•**  piercing enthusiast [11x]\
-**•**  married irl; local wife guy\
-**•**  stoner/medical marijuana user\
-**•**  studying social worker + queer scholar
+**<ins>extra</ins>⠀<ins>information</ins>**\
+**★**  piercing lover⠀<sup>[11x]</sup>\
+**★**  married irl\
+**★**  med. marijuana user\
+**★**  studying <ins>social</ins> <ins>worker</ins>⠀+⠀queer scholar
 
-**<ins>limit interaction</ins>**\
-**•**  -18, excl. casual/regiment talk\
-**•**  knew me pre-transition\
-**•**  engages in online discourse\
-   ↘   queer exclusionism + anti/proship, etc.
+**<ins>limit</ins> <ins>interaction</ins>**\
+**★** ⠀⠀knew me pre-transition\
+**★** ⠀⠀under 18⠀ [excl. regi or casual chat]</sup>\
+**★** ⠀⠀engages in online discourse\
+   ↘   queer exclusion⠀+⠀anti/proship, etc.
+
+
+<div align="center">
+
+##  
+### *〝⠀then <ins>die</ins>, caesar.⠀〞*
+</div>
