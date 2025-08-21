@@ -17,7 +17,7 @@ afro-latino⠀⠀enfj**\
 **★** ⠀⠀knew me pre-transition\
 **★** ⠀⠀under 18⠀ [excl. regi or casual chat]</sup>\
 **★** ⠀⠀engages in online discourse\
-   ↘   queer exclusion⠀+⠀anti/proship, etc.
+   ↘   queer exclusionism⠀+⠀anti/proship⠀...⠀etc.
 
 
 <div align="center">
