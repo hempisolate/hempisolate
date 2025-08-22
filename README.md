@@ -11,7 +11,7 @@ afro-latino⠀⠀enfj**\
 > **★**  piercing lover⠀[ 11 × ]\
 **★**  married irl\
 **★**  med. marijuana user\
-**★**  studying <ins>social</ins> <ins>worker</ins>⠀+⠀queer scholar
+**★**  studying <ins>social</ins> <ins>worker</ins>⠀+⠀queer historian
 
 ### **<ins>limit</ins> <ins>interaction</ins>**
 > **★** ⠀⠀knew me pre-transition\
