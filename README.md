@@ -8,9 +8,9 @@ afro-latino⠀⠀enfj**\
 </div>
 
  ### **<ins>extra</ins> <ins>information</ins>**
-> **★**  married⠀&⠀pierced irl⠀[ 11 × ]\
+> **★**  married⠀&⠀pierced irl [ 11 × ]\
 **★**  med. marijuana user\
-**★**  regiscout community c. 2021\
+**★**  regiscout community c. 2021⠀ [ @ dsdf ]\
 **★**  studying <ins>social</ins> <ins>worker</ins>⠀+⠀queer historian
 
 ### **<ins>limit</ins> <ins>interaction</ins>**
