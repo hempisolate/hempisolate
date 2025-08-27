@@ -1,13 +1,13 @@
 <div align="center">
   <img src="https://i.postimg.cc/nLkWzjy2/huiuhuiuh.png"" width="600">
   
-## *〝⠀i want you in my <ins>lungs</ins> now, 〞*
+## *[fuel](https://open.spotify.com/track/1tTPC0hsnXq1IGpvWY54JC?si=221d64f61d884ea9) is pumping engines,*
 **twenty⠀⠀⠀<ins>he</ins> / <ins>him</ins>\
 afro-latino⠀⠀enfj**\
 [sign](https://hempderived.atabook.org)⠀[my](https://hempderived.atabook.org)⠀[atabook!](https://hempderived.atabook.org)
 </div>
 
- ### **<ins>extra</ins> <ins>information</ins>**
+### **<ins>extra</ins> <ins>information</ins>**
 > **★**  married⠀&⠀pierced irl⠀ [ 11 × ]\
 **★**  med. marijuana user\
 **★**  regiscout community c. 2021⠀ [ @ dsdf ]\
@@ -22,5 +22,5 @@ afro-latino⠀⠀enfj**\
 <div align="center">
 
 ##  
-### *〝⠀how my body <ins>aches</ins> for you; [euphoria](https://youtu.be/kf-odEQ17uk).⠀〞*
+### *burning hard, loose, and clean.*
 </div>
