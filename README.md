@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://files.catbox.moe/oor11d.png"" width="600">
+  <img src="https://i.ibb.co/yFNJvX6G/huiuhuiuh.png"" width="600">
   
 ## *〝⠀et tu, <ins>bruté</ins>?⠀〞*
 **twenty⠀⠀⠀<ins>he</ins> / <ins>him</ins>\
