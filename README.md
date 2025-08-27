@@ -14,7 +14,7 @@ afro-latino⠀⠀enfj**\
 **★**  studying <ins>social</ins> <ins>worker</ins>⠀+⠀lgbtq historian
 
 ### **<ins>limit</ins> <ins>interaction</ins>**
-> **★** ⠀⠀knew me pre-transition⠀ [ 01 / 30 / 24 ]\
+> **★** ⠀⠀knew me pre-testosterone⠀ [ 01 / 30 / 24 ]\
 **★** ⠀⠀under 18⠀ [ excl. regi⠀&⠀casual chat ]</sup>\
 **★** ⠀⠀engages in online discourse\
    ↘   queer exclusionism⠀+⠀anti / proship⠀...⠀etc.
