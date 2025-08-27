@@ -14,14 +14,13 @@ afro-latino⠀⠀enfj**\
 **★**  studying <ins>social</ins> <ins>worker</ins>⠀+⠀lgbtq historian
 
 ### **<ins>fandoms</ins>⠀[ ul = active ]**
-> **★**  <ins>pkmn</ins>  tf2  <ins>ow2</ins>  d:bh\
-**★**  portal  sonic  splatoon  jjba
+> **★**  <ins>pokémon</ins>  tf2  <ins>overwatch</ins>  portal\
+**★**  sonic  jjba  splatoon  d:bh
 
 ### **<ins>limit</ins> <ins>interaction</ins>**
 > **★** ⠀⠀knew me pre-testosterone⠀ [ jan.⠀2024 ]\
 **★** ⠀⠀under 18⠀ [ excl. regi⠀&⠀casual chat ]</sup>\
-**★** ⠀⠀engages in online discourse\
-   ↘   queer exclusionism⠀+⠀anti / proship ...⠀etc.
+**★** ⠀⠀online discourse enthusiasts
 
 <div align="center">
 
