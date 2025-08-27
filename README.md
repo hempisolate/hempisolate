@@ -5,13 +5,13 @@
 ##
 **twenty⠀⠀⠀<ins>he</ins> / <ins>him</ins>\
 afro-latino⠀⠀enfj**\
-[sign](https://hempderived.atabook.org)⠀[my](https://hempderived.atabook.org)⠀[atabook!](https://hempderived.atabook.org)
+[sign](https://hempderived.atabook.org)⠀[my](https://hempderived.atabook.org)⠀[atabook?](https://hempderived.atabook.org)
 </div>
 
 ### **<ins>extra</ins> <ins>information</ins>**
 > **★**  married⠀&⠀pierced irl⠀ [ 11⠀× ]\
-**★**  med. marijuana user\
-**★**  regiscout community c. 2021⠀ [ @⠀dsdf ]\
+**★**  medical marijuana user\
+**★**  regiscout community c. 2021⠀ [ @ dsdf ]\
 **★**  studying <ins>social</ins> <ins>worker</ins>⠀+⠀lgbtq historian
 
 ### **<ins>fandoms</ins>⠀[ ul = active ]**
