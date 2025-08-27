@@ -11,13 +11,13 @@ afro-latino⠀⠀enfj**\
 > **★**  married⠀&⠀pierced irl [ 11 × ]\
 **★**  med. marijuana user\
 **★**  regiscout community c. 2021⠀ [ @ dsdf ]\
-**★**  studying <ins>social</ins> <ins>worker</ins>⠀+⠀lgbtq+ historian
+**★**  studying <ins>social</ins> <ins>worker</ins>⠀+⠀lgbt historian
 
 ### **<ins>limit</ins> <ins>interaction</ins>**
 > **★** ⠀⠀knew me pre-transition\
 **★** ⠀⠀under 18⠀ [ excl. regi⠀&⠀casual chat ]</sup>\
 **★** ⠀⠀engages in online discourse\
-   ↘   queer exclusionism⠀+⠀anti / proship⠀...⠀etc.
+   ↘   lgbt exclusionism⠀+⠀anti / proship⠀...⠀etc.
 
 
 <div align="center">
