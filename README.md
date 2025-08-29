@@ -5,6 +5,8 @@
 **twenty  <ins>he</ins> / <ins>him</ins>  enfj\
 afro-latino⠀⠀queer**\
 [sign](https://hempderived.atabook.org)⠀[my](https://hempderived.atabook.org)⠀[atabook?](https://hempderived.atabook.org)
+
+
 </div>
 
 ### **<ins>i.</ins>⠀⠀extra <ins>information</ins>**
@@ -22,12 +24,11 @@ afro-latino⠀⠀queer**\
 > **★** ⠀⠀knew me pre-testosterone⠀ [ jan.⠀2024 ]\
 **★** ⠀⠀under 18⠀ [ excl. regi⠀&⠀casual chat ]</sup>\
 **★** ⠀⠀engages in online discourse
+##  
+
 <div align="center">
- 
 
-  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=1osmny1bc0de3a5c2cmr0p1v8&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&bar_color=f1f6fc&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=1osmny1bc0de3a5c2cmr0p1v8&redirect=true)
-
+  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=1osmny1bc0de3a5c2cmr0p1v8&cover_image=true&theme=compact&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
 </div>
 
  
-##  
