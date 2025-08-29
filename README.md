@@ -15,7 +15,7 @@ afro-latino⠀⠀queer**\
 **★**  regiscout community c. 2021⠀ [ @ dsdf ]\
 **★**  studying <ins>social</ins> <ins>worker</ins>⠀+⠀queer historian
 
-### **<ins>ii.</ins>⠀⠀<ins>interests</ins>⠀[ ul = active ]**
+### **<ins>ii.</ins>⠀⠀<ins>interests</ins>⠀[ ul = long-term ]**
 > **★**  <ins>pokémon</ins>  tf2  <ins>overwatch</ins>  portal\
 **★**  sonic  jjba  splatoon  d:bh\
 **☆**  [i.](https://mspaintadventures.fandom.com/wiki/Dave_Strider)   [ii.](https://deltarune.fandom.com/wiki/Susie)   [iii.](https://overwatch.fandom.com/wiki/Venture)   [iv.](https://overwatch.fandom.com/wiki/Cassidy)
