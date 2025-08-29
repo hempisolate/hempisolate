@@ -4,7 +4,7 @@
 ## [fuel](https://open.spotify.com/track/1tTPC0hsnXq1IGpvWY54JC?si=221d64f61d884ea9) is pumping engines.
 **twenty  <ins>he</ins> / <ins>him</ins>  enfj\
 afro-latino⠀⠀queer**\
-[atabook](https://hempderived.atabook.org)
+[my](https://hempderived.atabook.org) [atabook](https://hempderived.atabook.org)
 </div>
 
 ### **<ins>i.</ins>⠀⠀extra <ins>information</ins>**
@@ -16,7 +16,7 @@ afro-latino⠀⠀queer**\
 ### **<ins>ii.</ins>⠀⠀<ins>interests</ins>⠀[ ul = active ]**
 > **★**  <ins>pokémon</ins>  tf2  <ins>overwatch</ins>  portal\
 **★**  sonic  jjba  splatoon  d:bh\
-**☆**  [`i.`](https://mspaintadventures.fandom.com/wiki/Dave_Strider)   [`ii.`](https://deltarune.fandom.com/wiki/Susie)   [`iii.`](https://overwatch.fandom.com/wiki/Venture)   [`iv.`](https://overwatch.fandom.com/wiki/Cassidy)
+**☆**  [i.](https://mspaintadventures.fandom.com/wiki/Dave_Strider)   [ii.](https://deltarune.fandom.com/wiki/Susie)   [iii.](https://overwatch.fandom.com/wiki/Venture)   [iv.](https://overwatch.fandom.com/wiki/Cassidy)
 
 ### **<ins>iii.</ins>⠀⠀limit <ins>interaction</ins>**
 > **★** ⠀⠀knew me pre-testosterone⠀ [ jan.⠀2024 ]\
