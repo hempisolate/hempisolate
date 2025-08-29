@@ -11,7 +11,7 @@ afro-latino⠀⠀enfj**\
 > **★**  married⠀&⠀pierced irl⠀ [ 11⠀× ]\
 **★**  medical marijuana user\
 **★**  regiscout community c. 2021⠀ [ @ dsdf ]\
-**★**  studying <ins>social</ins> <ins>worker</ins>⠀+⠀lgbtq historian
+**★**  studying <ins>social</ins> <ins>worker</ins>⠀+⠀queer historian
 
 ### **<ins>fandoms</ins>⠀[ ul = active ]**
 > **★**  <ins>pokémon</ins>  tf2  <ins>overwatch</ins>  portal\
@@ -20,7 +20,7 @@ afro-latino⠀⠀enfj**\
 ### **<ins>limit</ins> <ins>interaction</ins>**
 > **★** ⠀⠀knew me pre-testosterone⠀ [ jan.⠀2024 ]\
 **★** ⠀⠀under 18⠀ [ excl. regi⠀&⠀casual chat ]</sup>\
-**★** ⠀⠀online discourse enthusiasts
+**★** ⠀⠀online discourse enthusiast
 
 <div align="center">
 
