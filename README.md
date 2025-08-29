@@ -1,7 +1,7 @@
 <div align="center">
   <img src="https://i.postimg.cc/4dNXNh3b/numbers.png" width="600">
   
-## [dreams](https://open.spotify.com/track/76YNtkcChxCfgTItxEjH2v?si=79c0f43cca1b474b)⠀are⠀normal,⠀too.
+## [dreams](https://open.spotify.com/track/76YNtkcChxCfgTItxEjH2v?si=79c0f43cca1b474b) are normal, too.
 **twenty  <ins>he</ins> / <ins>him</ins>  enfj\
 afro-latino⠀⠀queer**\
 [my](https://hempderived.atabook.org) [atabook](https://hempderived.atabook.org)
