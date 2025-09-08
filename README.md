@@ -4,7 +4,8 @@
 ## [dreams](https://open.spotify.com/track/76YNtkcChxCfgTItxEjH2v?si=79c0f43cca1b474b) are normal, too.
 **20  <ins>he</ins> / <ins>him</ins>  enfj\
 afro-latino⠀⠀queer**\
-[atabook.org](https://hempderived.atabook.org)
+solo⠀regibunny⠀dev\
+[sign my atabook.org](https://hempderived.atabook.org)
 
 
 </div>
@@ -12,7 +13,7 @@ afro-latino⠀⠀queer**\
 ### **<ins>i.</ins>⠀⠀extra <ins>information</ins>**
 > **★**  married⠀&⠀pierced irl⠀ [ 11⠀× ]\
 **★**  medical marijuana user\
-**★**  regiscout community c. 2021⠀ [ @ dsdf ]\
+**★**  regiscout community c. 2021⠀ [ coded regibunny ]\
 **★**  studying <ins>social</ins> <ins>worker</ins>⠀+⠀queer historian
 
 ### **<ins>ii.</ins>⠀⠀<ins>interests</ins>⠀[ ul = long-term ]**
@@ -22,7 +23,7 @@ afro-latino⠀⠀queer**\
 
 ### **<ins>iii.</ins>⠀⠀limit <ins>interaction</ins>**
 > **★** ⠀⠀knew me pre-testosterone⠀ [ jan.⠀2024 ]\
-**★** ⠀⠀under 18⠀ [ excl. regi⠀&⠀casual chat ]</sup>\
+**★** ⠀⠀under 18⠀ [ excl. regi⠀&⠀dev inquiries ]</sup>\
 **★** ⠀⠀engages in online discourse
 ##  
 
