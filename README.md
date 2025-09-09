@@ -10,18 +10,22 @@ solo⠀regibunny⠀dev\
 
 </div>
 
-### **<ins>i.</ins>⠀⠀extra <ins>information</ins>**
+### **<ins>i.</ins>⠀⠀regibunny <ins>info</ins>**
+> **★**  amateur discord bot developer\
+> **★**  regibunny creator + solo dev
+
+### **<ins>ii.</ins>⠀⠀extra <ins>information</ins>**
 > **★**  married⠀&⠀pierced irl⠀ [ 11⠀× ]\
 **★**  medical marijuana user\
-**★**  regiscout community c. 2021⠀ [ coded regibunny ]\
+**★**  regiscout community c. 2021\
 **★**  studying <ins>social</ins> <ins>worker</ins>⠀+⠀queer historian
 
-### **<ins>ii.</ins>⠀⠀<ins>interests</ins>⠀[ ul = long-term ]**
+### **<ins>iii.</ins>⠀⠀<ins>interests</ins>⠀[ ul = long-term ]**
 > **★**  <ins>pokémon</ins>  tf2  <ins>overwatch</ins>  portal\
 **★**  sonic  jjba  splatoon  d:bh\
 **☆**  [i.](https://mspaintadventures.fandom.com/wiki/Dave_Strider)   [ii.](https://deltarune.fandom.com/wiki/Susie)   [iii.](https://overwatch.fandom.com/wiki/Venture)   [iv.](https://overwatch.fandom.com/wiki/Cassidy)
 
-### **<ins>iii.</ins>⠀⠀limit <ins>interaction</ins>**
+### **<ins>iv.</ins>⠀⠀limit <ins>interaction</ins>**
 > **★** ⠀⠀knew me pre-testosterone⠀ [ jan.⠀2024 ]\
 **★** ⠀⠀under 18⠀ [ excl. regi⠀&⠀dev inquiries ]</sup>\
 **★** ⠀⠀engages in online discourse
