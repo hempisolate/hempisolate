@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://i.postimg.cc/4dNXNh3b/numbers.png" width="600">
+  <img src="https://i.postimg.cc/pr4BKzh1/01b22c2ebad0f8bd982c979dc50d433f-removebg-preview-1.png" width="675">
   
 ## [dreams](https://open.spotify.com/track/76YNtkcChxCfgTItxEjH2v?si=79c0f43cca1b474b) are normal, too.
 **20  <ins>he</ins> / <ins>him</ins>  enfj\
