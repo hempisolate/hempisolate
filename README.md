@@ -3,22 +3,22 @@
   
 ## [dreams](https://open.spotify.com/track/76YNtkcChxCfgTItxEjH2v?si=79c0f43cca1b474b) are normal, too.
 **20  <ins>he</ins> / <ins>him</ins>  enfj\
-afro-latino⠀⠀queer**\
-solo⠀regibunny⠀dev\
+queer⠀⠀afro-latino**\
+regibunny developer\
 [sign my atabook.org](https://hempderived.atabook.org)
 
 
 </div>
 
 ### **<ins>i.</ins>⠀⠀regibunny <ins>info</ins>**
-> **★**  amateur discord bot developer\
-> **★**  regibunny creator + solo dev
+> **★**  amateur d.js dev\
+> **★**  check back soon!
 
 ### **<ins>ii.</ins>⠀⠀extra <ins>information</ins>**
 > **★**  married⠀&⠀pierced irl⠀ [ 11⠀× ]\
 **★**  medical marijuana user\
 **★**  regiscout community c. 2021\
-**★**  studying <ins>social</ins> <ins>worker</ins>⠀+⠀queer historian
+**★**  studying <ins>social</ins> <ins>worker</ins>⠀+⠀lgbtq+ historian
 
 ### **<ins>iii.</ins>⠀⠀<ins>interests</ins>⠀[ ul = long-term ]**
 > **★**  <ins>pokémon</ins>  tf2  <ins>overwatch</ins>  portal\
