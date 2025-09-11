@@ -4,29 +4,29 @@
 ## you're just [too good](https://open.spotify.com/track/6GCusUym0CAdFS2g1qG79Y?si=d6f6e88f7ef84ff6) for me.
 twenty  he/him  enfj\
 queer⠀⠀afro-latino\
-[atabook.org](https://hempderived.atabook.org)⠀⠀[use regibunny](https://regibunny.carrd.co)
+[atabook.org](https://hempderived.atabook.org)⠀⠀[use regibunny!](https://regibunny.carrd.co)
 
 
 </div>
 
 ### **<ins>i.</ins>⠀⠀ponytown-<ins>specific</ins>**
-> **★**  whisper to interact⠀ [ mostly off-tab ]\
+> **★**  whisper to interact, mostly off-tab\
 > **★**  solo developer of [regibunny](https://regibunny.carrd.co)\
-> **★**  regiscout community c. 2021⠀ [ @ dsdf ]
+> **★**  regiscout community c. 2021 [@dsdf]
 
 
 ### **<ins>ii.</ins>⠀⠀extra <ins>information</ins>**
-> **★**  married⠀&⠀pierced irl⠀ [ 11⠀× ]\
-**★**  medical marijuana user\
-> **★**  accessibility user⠀ [ (de)sat filter⠀&⠀captions ]
-**★**  studying <ins>social</ins> <ins>worker</ins>⠀+⠀lgbtq+ historian
+> **★**  married & pierced irl⠀[11×]\
+> **★**  medical marijuana user\
+> **★**  studying <ins>social</ins> <ins>worker</ins>\
+> **★**  screen filter & caption user
 
 ### **<ins>iii.</ins>⠀⠀limit <ins>interaction</ins>**
-> **★** ⠀⠀knew me pre-testosterone⠀ [ jan.⠀2024 ]\
-**★** ⠀⠀under 18⠀ [ excl. regi⠀&⠀dev inquiries ]</sup>\
+> **★** ⠀⠀knew me pre-testosterone⠀[jan. 2024]\
+**★** ⠀⠀under 18 [excl. regi/dev inquiries]</sup>\
 **★** ⠀⠀engages in online discourse
 
-### **<ins>iv.</ins>⠀⠀<ins>interests</ins>⠀[ ul = long-term ]**
+### **<ins>iv.</ins>⠀⠀<ins>interests</ins>⠀[ul = long-term]**
 > **★**  <ins>pokémon</ins>  tf2  <ins>overwatch</ins>  portal\
 **★**  sonic  jjba  splatoon  d:bh\
 **☆**  [i.](https://mspaintadventures.fandom.com/wiki/Dave_Strider)   [ii.](https://deltarune.fandom.com/wiki/Susie)   [iii.](https://overwatch.fandom.com/wiki/Venture)   [iv.](https://overwatch.fandom.com/wiki/Cassidy)
