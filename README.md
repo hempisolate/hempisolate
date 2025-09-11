@@ -1,10 +1,10 @@
 <div align="center">
   <img src="https://i.postimg.cc/pr4BKzh1/01b22c2ebad0f8bd982c979dc50d433f-removebg-preview-1.png" width="675">
   
-## you're just [too good](https://open.spotify.com/track/6GCusUym0CAdFS2g1qG79Y?si=d6f6e88f7ef84ff6) for me.
+## when you blink, we'll [erode.](https://open.spotify.com/track/6peFwvcvgkjUYrq3cn6a72?si=3b062a78e7a741af)
 twenty  he/him  enfj\
 queer⠀⠀afro-latino\
-[atabook.org](https://hempderived.atabook.org)⠀⠀[use regibunny!](https://regibunny.carrd.co)
+[atabook.org](https://hempderived.atabook.org)⠀⠀[use regibunny](https://regibunny.carrd.co)
 
 
 </div>
@@ -13,6 +13,7 @@ queer⠀⠀afro-latino\
 > **★**  whisper to interact, mostly off-tab\
 > **★**  solo developer of [regibunny](https://regibunny.carrd.co)\
 > **★**  regiscout community c. 2021 [@dsdf]
+> 
 
 
 ### **<ins>ii.</ins>⠀⠀extra <ins>information</ins>**
