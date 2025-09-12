@@ -27,7 +27,7 @@ queer⠀⠀afro-latino\
 **★** ⠀⠀under 18 [excl. regi/dev inquiries]</sup>\
 **★** ⠀⠀engages in online discourse
 
-### **<ins>iv.</ins>⠀⠀<ins>interests</ins>⠀[ul = long-term]**
+### **<ins>iv.</ins>⠀⠀<ins>fandoms</ins>⠀[ul = active]**
 > **★**  <ins>pokémon</ins>  tf2  <ins>overwatch</ins>  portal\
 **★**  sonic  jjba  splatoon  d:bh\
 **☆**  [i.](https://mspaintadventures.fandom.com/wiki/Dave_Strider)   [ii.](https://deltarune.fandom.com/wiki/Susie)   [iii.](https://overwatch.fandom.com/wiki/Venture)   [iv.](https://overwatch.fandom.com/wiki/Cassidy)
