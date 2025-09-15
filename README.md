@@ -10,7 +10,7 @@ queer⠀⠀afro-latino\
 </div>
 
 ### **<ins>i.</ins>⠀⠀ponytown-<ins>specific</ins>**
-> **★**  often off-tab @main map\
+> **★**  w2i, pub. chat off\
 > **★**  regiscout community c. 2021
 
 
