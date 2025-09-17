@@ -1,7 +1,7 @@
 <div align="center">
-  <img src="https://64.media.tumblr.com/955e32d743579d49bc61cfc093e32add/4f26effd7c3901e4-b0/s2048x3072/345048b01dcb5a4a3faaa085d69df7601ff0fa3e.pnj"width="375">
+  <img src="https://64.media.tumblr.com/955e32d743579d49bc61cfc093e32add/4f26effd7c3901e4-b0/s2048x3072/345048b01dcb5a4a3faaa085d69df7601ff0fa3e.pnj"width="420">
   
-# when you blink, we'll [erode.](https://open.spotify.com/track/6peFwvcvgkjUYrq3cn6a72?si=3b062a78e7a741af)
+## when you blink, we'll [erode.](https://open.spotify.com/track/6peFwvcvgkjUYrq3cn6a72?si=3b062a78e7a741af)
 twenty  he/him  enfj\
 queer⠀⠀afro-latino\
 [leave a msg.](https://hempderived.atabook.org)⠀⠀[abt. regibunny](https://regibunny.carrd.co)
