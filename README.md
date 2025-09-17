@@ -12,13 +12,13 @@ queer⠀⠀afro-latino\
 ### **<ins>i.</ins>⠀⠀ponytown-<ins>specific</ins>**
 > **★**  w2i, pub. chat off\
 > **★**  regiscout community c. 2021\
-> **★**  solo regibunny dev
+> **★**  solo dev of regibunny 
 
 
 ### **<ins>ii.</ins>⠀⠀extra <ins>information</ins>**
 > **★**  med. marijuana user\
 > **★**  married in real life\
-> **★**  uses captions & screen filter
+> **★**  disabled, uses filter + captions
 
 ### **<ins>iii.</ins>⠀⠀limit <ins>interaction</ins>**
 > **★**  under 18 [excl. regi/dev inquiries]</sup>
