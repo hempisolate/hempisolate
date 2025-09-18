@@ -3,7 +3,7 @@
   
 ## when you blink, we'll [erode.](https://open.spotify.com/track/6peFwvcvgkjUYrq3cn6a72?si=3b062a78e7a741af)
 twenty  he/him  enfj\
-queer⠀⠀afro-latino\
+queer [⚣](https://lgbtqia.wiki/wiki/Homoflexible)⠀⠀afro-latino\
 [leave a msg.](https://hempderived.atabook.org)⠀⠀[abt. regibunny](https://regibunny.carrd.co)
 
 
@@ -12,7 +12,7 @@ queer⠀⠀afro-latino\
 ### **<ins>i.</ins>⠀⠀ponytown-<ins>specific</ins>**
 > **★**  w2i, pub. chat off\
 > **★**  regiscout community c. 2021\
-> **★**  solo dev of regibunny 
+> **★**  solo dev of regibunny [& quaximus]
 
 
 ### **<ins>ii.</ins>⠀⠀extra <ins>information</ins>**
