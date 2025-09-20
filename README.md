@@ -7,8 +7,8 @@
 
 ## 
 
-### <ins>yo, i'm beaker.</ins>
-> **twenty  [he/any](https://en.pronouns.page/@beetlectomy)  enfj**\
+### <ins>yo</ins>, <ins>i'm</ins> <ins>beaker</ins>.
+> **twenty  [he](https://en.pronouns.page/@beetlectomy) [any](https://en.pronouns.page/@beetlectomy)  enfj**\
 > afro-latino  tboy  audhd\
 > **[carrd](https://beakerbong.carrd.co)    [atabook](https://hempisolate.atabook.org)** 
 
