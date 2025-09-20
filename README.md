@@ -7,7 +7,7 @@
 
 ## 
 
-### <ins>yo</ins>, <ins>i'm</ins> <ins>beaker</ins>.
+### yo, i'm beaker. 'sup?
 > **twenty  [he](https://en.pronouns.page/@beetlectomy) [any](https://en.pronouns.page/@beetlectomy)  enfj**\
 > afro-latino  tboy  audhd\
 > **[carrd](https://beakerbong.carrd.co)    [atabook](https://hempisolate.atabook.org)** 
