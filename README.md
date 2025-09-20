@@ -1,26 +1,26 @@
 <div align="center">
-  <img src="https://64.media.tumblr.com/955e32d743579d49bc61cfc093e32add/4f26effd7c3901e4-b0/s2048x3072/345048b01dcb5a4a3faaa085d69df7601ff0fa3e.pnj"width="420">
-  
-## when you blink, we'll [erode.](https://open.spotify.com/track/6peFwvcvgkjUYrq3cn6a72?si=3b062a78e7a741af)
-twenty  he/him  enfj\
-queer [⚣](https://lgbtqia.wiki/wiki/Homoflexible)⠀⠀afro-latino\
-[leave a msg.](https://hempderived.atabook.org)⠀⠀[abt. regibunny](https://regibunny.carrd.co)
+  <img src="https://i.postimg.cc/C5RjVSX2/51d54de514762a399ca98adbef38b124-Cropped-modified.png"width="500">
+</br>
+</br>
+
+![](https://komarev.com/ghpvc/?username=beakerbong&label=  look up, and we'll stare at the same moon.    ★  &color=bf5b39&base=665)
+
+## 
+
+### <ins>yo, i'm beaker.</ins>
+> **twenty  [he/any](https://en.pronouns.page/@beetlectomy)  enfj**\
+> afro-latino  tboy  audhd\
+> **[carrd](https://beakerbong.carrd.co)    [atabook](https://hempisolate.atabook.org)** 
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=1osmny1bc0de3a5c2cmr0p1v8&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=bf5b39&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=1osmny1bc0de3a5c2cmr0p1v8&redirect=true)
+</br>
+</br>
+
+| | |
+| ------------- | ------------- |
+| <blockquote> <sub>**only whisper to interact**</sub></br><sup>public chat disabled</sup> </blockquote> | <blockquote> <sub>**limit casual int if >18**</sub></br><sup>[excl. regi/dev inquiries]</sup></blockquote> |
+
 
 
 </div>
-
-### **<ins>i.</ins>⠀⠀ponytown-<ins>specific</ins>**
-> **★**  w2i, pub. chat off\
-> **★**  regiscout community c. 2021\
-> **★**  solo dev of regibunny [& quaximus]
-
-
-### **<ins>ii.</ins>⠀⠀extra <ins>information</ins>**
-> **★**  med. marijuana user\
-> **★**  married in real life\
-> **★**  disabled, uses filter + captions
-
-### **<ins>iii.</ins>⠀⠀limit <ins>interaction</ins>**
-> **★**  under 18 [excl. regi/dev inquiries]</sup>
-##  
 
