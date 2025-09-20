@@ -14,7 +14,6 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=1osmny1bc0de3a5c2cmr0p1v8&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=bf5b39&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=1osmny1bc0de3a5c2cmr0p1v8&redirect=true)
 </br>
-</br>
 
 | | |
 | ------------- | ------------- |
