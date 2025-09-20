@@ -17,7 +17,7 @@
 
 | | |
 | ------------- | ------------- |
-| <blockquote> <sub>**only whisper to interact**</sub></br><sup>public chat disabled [[?]](https://beakerbong.carrd.co/#why)</sup> </blockquote> | <blockquote> <sub>**limit casual int if >18**</sub></br><sup>[excl. regi/dev inquiries]</sup></blockquote> |
+| <blockquote> <sub>**only whisper to interact**</sub></br><sup>public chat disabled</sup> </blockquote> | <blockquote> <sub>**limit casual int if >18**</sub></br><sup>[excl. regi/dev inquiries]</sup></blockquote> |
 
 
 
