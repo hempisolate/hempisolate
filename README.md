@@ -1,14 +1,14 @@
 <div align="center">
-  <img src="https://i.postimg.cc/C5RjVSX2/51d54de514762a399ca98adbef38b124-Cropped-modified.png"width="500">
+  <img src="https://i.postimg.cc/Hkw95B9G/rocket.png"width="400">
 </br>
 </br>
 
-![](https://komarev.com/ghpvc/?username=hempisolate&label=  look up, and we'll stare at the same moon.    ★  &color=bf5b39&base=665)
+![](https://komarev.com/ghpvc/?username=hempisolate&label=  look up, and we'll stare at the same moon.    ★  &color=b76252&base=665)
 
 ## 
 
 ### yo, i'm beaker. 'sup?
-> **twenty  [he](https://en.pronouns.page/@beetlectomy) [+](https://en.pronouns.page/@beetlectomy)  enfj**\
+> **twenty** [04]  **[he](https://en.pronouns.page/@beetlectomy) [+](https://en.pronouns.page/@beetlectomy)  enfj**\
 > afro-latino  tboy  audhd\
 > **[carrd](https://beakerbong.carrd.co)    [atabook](https://hempisolate.atabook.org)** 
 
