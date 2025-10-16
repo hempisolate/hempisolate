@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://i.postimg.cc/xdwB6sb9/rocketchu.png"width="400">
+  <img src="https://i.postimg.cc/xdwB6sb9/rocketchu.png" width="400">
 </br>
 </br>
 
@@ -18,8 +18,6 @@
 | | |
 | ------------- | ------------- |
 | <blockquote> <sub>**only whisper to interact**</sub></br><sup>public chat disabled</sup> </blockquote> | <blockquote> <sub>**limit casual int if >18**</sub></br><sup>[excl. regi/dev inquiries]</sup></blockquote> |
-
-
 
 </div>
 
