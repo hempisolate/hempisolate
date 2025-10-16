@@ -3,7 +3,7 @@
 </br>
 </br>
 
-![](https://komarev.com/ghpvc/?username=hempisolate&label=  look up, and we'll stare at the same moon.    ★  &color=bd4444&base=665)
+![](https://komarev.com/ghpvc/?username=hempisolate&label=  look up, and we'll stare at the same moon.    ★  &color=d44844&base=665)
 
 ## 
 
@@ -12,7 +12,7 @@
 > afro-latino  tboy  audhd &c.\
 > **[carrd](https://beakerbong.carrd.co)    [atabook](https://hempisolate.atabook.org)** 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=1osmny1bc0de3a5c2cmr0p1v8&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=dd3f2a&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=1osmny1bc0de3a5c2cmr0p1v8&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=1osmny1bc0de3a5c2cmr0p1v8&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=d44844&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=1osmny1bc0de3a5c2cmr0p1v8&redirect=true)
 </br>
 
 | | |
