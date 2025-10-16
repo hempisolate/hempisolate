@@ -8,7 +8,7 @@
 ## 
 
 ### yo, i'm beaker. 'sup?
-> **twenty** [04]  **[he](https://en.pronouns.page/@beetlectomy) [+](https://en.pronouns.page/@beetlectomy)  enfj**\
+> **twenty**  **[he](https://en.pronouns.page/@beetlectomy) [+](https://en.pronouns.page/@beetlectomy)  enfj**\
 > afro-latino  tboy  audhd\
 > **[carrd](https://beakerbong.carrd.co)    [atabook](https://hempisolate.atabook.org)** 
 
