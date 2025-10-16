@@ -9,7 +9,7 @@
 
 ### yo, i'm <ins>beaker</ins>. 'sup?
 > **twenty**  **[he](https://en.pronouns.page/@beetlectomy) [+](https://en.pronouns.page/@beetlectomy)  enfj**\
-> afro-latino  tboy  audhd\
+> afro-latino  tboy  audhd &c.\
 > **[carrd](https://beakerbong.carrd.co)    [atabook](https://hempisolate.atabook.org)** 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=1osmny1bc0de3a5c2cmr0p1v8&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=dd3f2a&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=1osmny1bc0de3a5c2cmr0p1v8&redirect=true)
