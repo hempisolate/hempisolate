@@ -3,7 +3,7 @@
 </br>
 </br>
 
-![](https://komarev.com/ghpvc/?username=hempisolate&label=  look up, and we'll stare at the same moon.    ★  &color=dd3f2a&base=665)
+![](https://komarev.com/ghpvc/?username=hempisolate&label=  look up, and we'll stare at the same moon.    ★  &color=bd4444&base=665)
 
 ## 
 
